@@ -12,10 +12,10 @@
 ### Document
 * https://drive.google.com/file/d/1M9NkKgXiJky3PGXNURIuMwJOfItorSnr/view?usp=sharing
 ### Donate me : 
-* Agribank 5505205142674
-* Momo 0868420530
+* Agribank 
+* Momo 
 ### Contact me : 
 * Trần Quý Vinh
-* Phone number : 0868420530
+* Phone number : 
 * Linkedin : https://www.linkedin.com/in/tr%E1%BA%A7n-qu%C3%BD-vinh-16a47b205/
 * Facebook : https://www.facebook.com/profile.php?id=100010956674471
